@@ -8,3 +8,5 @@ Additional translations and technical support in our Discord: https://discord.gg
 More interesting scripts on our Tebex: https://marko-scripts.tebex.io/category/2612556
 
 Join if you want more :)
+
+https://youtu.be/CtFizJJjyA0
